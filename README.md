@@ -2,4 +2,4 @@
 
 > lifelong windows, android, intel, nvidia, and samsung user
 
-[MAL Blog](https://myanimelist.net/blog/Plaintiff)
+[MAL Blog](https://myanimelist.net/blog/Romar)
